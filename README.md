@@ -1,1 +1,4 @@
 # Red-velevet-cake
+Cake flour — We tried this version with both all purpose/plain flour and cake flour, and the cake flour version resulted in a softer, velvety cake, fooling everyone into thinking we had purchased it from an expensive baker! You can certainly use all purpose though if that’s all you have. You will still get an incredible cake.
+Oil — This addition guarantees a moist sponge. Mix it together with your cocoa powder and red dye so the three incorporate really well into the cake batter. This ensures the cocoa powder is mostly dissolved before being mixed through.
+Buttermilk OR milk with vinegar – We tried one version using buttermilk plus vinegar and one version making our own buttermilk, souring full cream milk with 1-2 teaspoons of vinegar before starting. Both worked INCREDIBLY well!
